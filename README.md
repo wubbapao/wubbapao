@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @wubbapao
-- 👀 I’m interested in gamiiinggnggg!!11!
-- 🌱 I’m currently learning coding:>
+- 👀 I’m interested in CODING!!11!
+- 🌱 I’m currently learning HTML & BOOTSTRAP 5:>
 - 💞️ I’m looking to collaborate on ...........
 - 📫 How to reach me ...(dont)
 - 😄 Pronouns: ...hehim
